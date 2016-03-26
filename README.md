@@ -6,4 +6,4 @@ Ron Blejter - 324463132
 
 Or Ben-Gigi - 304884752 
 
-Tal Daviv - 305691495 
+Tal David - 305691495 
